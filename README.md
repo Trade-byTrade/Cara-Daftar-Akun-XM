@@ -7,6 +7,8 @@
 ## 1. Kunjungi Website Resmi XM
 Buka [<a href="https://clicks.pipaffiliates.com/c?c=928231&amp;l=id&amp;p=1">Bukan akun XM</a>) di browser. Pastikan alamat situs benar agar aman.
 
+<img width="176" height="344" alt="xm_register_resized" src="https://github.com/user-attachments/assets/08d93a1c-9245-428d-a29c-8ee4d2a0adcf" />
+
 ## 2. Klik Tombol “Buka Akun”
 Di halaman utama, klik tombol **Buka Akun** untuk menuju formulir pendaftaran.
 
