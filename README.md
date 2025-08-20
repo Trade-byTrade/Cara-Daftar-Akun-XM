@@ -55,6 +55,6 @@ Membuat akun di broker XM sangat mudah. Ikuti langkah-langkah di atas, verifikas
 
 ## 🎯 Buka Akun
 👉 [<a href="https://clicks.pipaffiliates.com/c?c=928231&amp;l=id&amp;p=1">Bukan akun </a>}  
-💬 Gabung komunitas trading kami di [Telegram](https://t.me/yourchannel){:target="_blank"} untuk belajar bareng dan berbagi pengalaman.
+🆔 Use Partner Code: R3KTP
 
 ---
