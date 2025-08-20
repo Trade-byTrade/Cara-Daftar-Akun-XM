@@ -8,7 +8,7 @@
 Buka [<a href="https://clicks.pipaffiliates.com/c?c=928231&amp;l=id&amp;p=1">Bukan akun XM</a>) di browser. Pastikan alamat situs benar agar aman.
 
 ## 2. Klik Tombol “Buka Akun”
-Di halaman utama, klik tombol **Buka Akun** untuk menuju formulir pendaftaran. dan gunakan **Kode Mitra** **R3KTP**
+Di halaman utama, klik tombol **Buka Akun** untuk menuju formulir pendaftaran. dan gunakan **Kode Mitra** **:** **R3KTP**
 
 <img width="300" height="1536" alt="ChatGPT Image 20 Agu 2025, 22 15 37" src="https://github.com/user-attachments/assets/5d70f3e7-1dbe-474e-be21-7dcf17d82aa0" />
 
