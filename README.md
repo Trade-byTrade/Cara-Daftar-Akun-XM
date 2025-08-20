@@ -7,10 +7,10 @@
 ## 1. Kunjungi Website Resmi XM
 Buka [<a href="https://clicks.pipaffiliates.com/c?c=928231&amp;l=id&amp;p=1">Bukan akun XM</a>) di browser. Pastikan alamat situs benar agar aman.
 
-<img width="176" height="344" alt="xm_register_resized" src="https://github.com/user-attachments/assets/08d93a1c-9245-428d-a29c-8ee4d2a0adcf" />
-
 ## 2. Klik Tombol “Buka Akun”
-Di halaman utama, klik tombol **Buka Akun** untuk menuju formulir pendaftaran.
+Di halaman utama, klik tombol **Buka Akun** untuk menuju formulir pendaftaran. dan gunakan **Kode Mitra**
+
+<img width="1024" height="1536" alt="ChatGPT Image 20 Agu 2025, 22 15 37" src="https://github.com/user-attachments/assets/5d70f3e7-1dbe-474e-be21-7dcf17d82aa0" />
 
 ## 3. Isi Data Diri
 Isi data sesuai identitas resmi (KTP/SIM/Paspor). Data yang diminta antara lain:
